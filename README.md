@@ -1,10 +1,15 @@
 ## Hi there I an Sujal Arse ✨
 
 🧠 Computer Science student
+
 🧑‍💻 Full-Stack Web Developer
+
 📎 Create Useful Solutions With Skills
+
 ♥️ Love to Code with Others and Sharing Knowledge
+
 ✨ Always Seeking for a New Opportunity
+
 🖋️ Working Hard to get Start a Career
 
 ## 🌐 Socials:
